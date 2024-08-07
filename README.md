@@ -4,9 +4,9 @@
 - eu gosto de assistir filmes em horario vago
 - amo de passar meu tempo com meu namorado
 - meu sorvete favorito é de chocolate, flocos e açai 
-- minha cor favorita seria vermeljo
+- minha cor favorita seria vermelho
 - gosto de tirar um tempo para  cuidar das minhas unhas
-- ganhei varios presentes e surpresas de meu namorado
+- recebi varios presentes e surpresas de meu namorado
 - ganhei um buque lindo de rosas
 - meu  instagram tainan.gedak
 - meus sogros me adotaram como uma filha
