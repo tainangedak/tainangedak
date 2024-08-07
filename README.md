@@ -1,16 +1,17 @@
-## Hi there 👋
+## Hi there 👋 meu nome é Tainan
 
-<!--
-**tainangedak/tainangedak** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+- eu gosto de assistir filmes em horario vago
+- amo de passar meu tempo com meu namorado
+- meu sorvete favorito é de chocolate, flocos e açai 
+- minha cor favorita seria vermeljo
+- gosto de tirar um tempo para  cuidar das minhas unhas
+- ganhei varios presentes e surpresas de meu namorado
+- ganhei um buque lindo de rosas
+- meu  instagram tainan.gedak
+- meus sogros me adotaram como uma filha
+- final de ano vou fazer uma viagem para Aparecida com meu namorado
+- tive varios momentos imocionantes com meu namorado
+- tenho poucas lembranças com meu vô mas varios aprendizados
+- tenho 16 anos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
